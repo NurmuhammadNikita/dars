@@ -1,1 +1,1 @@
-# dars
+man git hub profil yaratdim
